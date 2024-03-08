@@ -1,4 +1,4 @@
-![MasterHead](https://www.computersciencedegreehub.com/wp-content/uploads/2023/02/shutterstock_535124956-scaled.jpg)]
+![MasterHead](https://www.freewebheaders.com/wp-content/gallery/business-workplace-size-800x200/cache/accounting-services-calculator-and-chart-blue-banner_size-800x200.jpg-nggid049048-ngg0dyn-800x200x100-00f0w010c010r110f110r010t010.jpg)]
 <h1 align="center">Hi 👋, I'm Aayushee Singh</h1>
 <h3 align="center">An Aspiring Software Developer</h3>
 
